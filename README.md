@@ -1,1 +1,1 @@
-# boumanggz-psychiaters-die-willens-en-werens-een-gat-in-je-kop-schieten
+# boumanggz-psychiaters-die-willens-en-wetens-een-gat-in-je-kop-schieten
